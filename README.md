@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @adevore3
+- 👀 I’m interested in coding, basketball & league of legends
+- 🌱 I’m currently learning all of those things
+- 💞️ I’m looking to collaborate on nothing at the moment
+- 📫 How to reach me... (if you know then you know)
